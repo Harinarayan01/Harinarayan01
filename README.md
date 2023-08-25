@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harinarayan947255@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ugy_BldSw88150VX4fkT55dgqABDx4fO/view?usp=sharing](https://drive.google.com/file/d/1ugy_BldSw88150VX4fkT55dgqABDx4fO/view?usp=sharing)
+- 📄 My resume : [https://drive.google.com/file/d/1ugy_BldSw88150VX4fkT55dgqABDx4fO/view?usp=sharing](https://drive.google.com/file/d/1ugy_BldSw88150VX4fkT55dgqABDx4fO/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
