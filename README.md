@@ -1,3 +1,4 @@
+[![MasterHead](https://www.snexplores.org/wp-content/uploads/2023/02/1030_ChatGPT_feat.gif)](https://Harinarayan01.io)
 
 
 <h1 align="center">Hi 👋, I'm Hari Narayan</h1>
