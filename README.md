@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **harinarayan947255@gmail.com**
 
-- 📄 My resume : [https://drive.google.com/file/d/1PJ5H-Jlg_lpehpmXsW1T9FcYeLKUgos9/view?usp=sharing](https://drive.google.com/file/d/1PJ5H-Jlg_lpehpmXsW1T9FcYeLKUgos9/view?usp=sharing)
+- 📄 My resume : [https://drive.google.com/file/d/1R_CBG7QgBEmXU5p_0gqMFJAc11PF9Ezn/view?usp=sharing](https://drive.google.com/file/d/1R_CBG7QgBEmXU5p_0gqMFJAc11PF9Ezn/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
